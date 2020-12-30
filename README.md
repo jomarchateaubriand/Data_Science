@@ -14,8 +14,7 @@
 **Background in:** .
 
 **Links:**
-* [Blog](http://sigmoidal.ai)
-* [LinkedIn](https://www.linkedin.com/in/carlosfab)
+* [LinkedIn](www.linkedin.com/in/jomar-chateaubriand)
 * [Medium](https://www.medium.com)
 
 
