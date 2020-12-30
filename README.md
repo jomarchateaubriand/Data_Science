@@ -14,8 +14,7 @@
 **Background in:** .
 
 **Links:**
-* [LinkedIn](www.linkedin.com/in/jomar-chateaubriand)
-* [Medium](https://www.medium.com)
+* [LinkedIn](https://www.linkedin.com/in/jomar-chateaubriand)
 
 
 ## Projetos:
